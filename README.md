@@ -44,4 +44,3 @@ GitHub: https://github.com/Ytlankadhipati
 
 LinkedIn: https://www.linkedin.com/in/ayush-awasthi-lankadhipati/
 
-Email: [ayushawasthi5363@gmail.com](mailto:ayushawasthi5363@gmail.com)
